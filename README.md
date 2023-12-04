@@ -1,6 +1,6 @@
-# marcandier
+# Marcandier.
 
-Public Domain Works of ? Marcandier (?-?)
+Public Domain Works of ? Marcandier (?-?).
 
 ## A Treatise on Hemp.
 
