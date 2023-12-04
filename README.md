@@ -7,4 +7,4 @@ Public Domain Works of ? Marcandier (?-?).
 French - Plain Text  
 French - PDF | Biolinum | Kerkis | Atkinson | Cursive | Aurical | Custom  
 English - Plain Text  
-English - PDF  
+English - PDF | Biolinum | Kerkis | Atkinson | Cursive | Aurical | Custom  
