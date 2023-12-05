@@ -2,7 +2,7 @@
 
 Public Domain Works of ? Marcandier (?-?).
 
-## A Treatise on Hemp.
+## Traité du Chanvre.
 
 [French - Plain Text](chanvre/full-text-french.md)  
 French - PDF | Biolinum | Kerkis | Atkinson | Cursive | Aurical | Custom  
