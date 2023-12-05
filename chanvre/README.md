@@ -1,4 +1,4 @@
-# A Treatise on Hemp.
+# Traité du Chanvre.
 
 [French - Plain Text](full-text-french.md)  
 French - PDF | Biolinum | Kerkis | Atkinson | Cursive | Aurical | Custom  
