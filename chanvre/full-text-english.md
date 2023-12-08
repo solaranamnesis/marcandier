@@ -12,6 +12,12 @@
 
 ---
 
+# [Part 1. Containing its History, with the Preparations and Uses made of it by the Ancients.]()
+
+# [Part 2. Of the Methods of cultivating, dressing, and manufacturing it, as improved by the Experience of modern Times.]()
+
+# [The Method of Bleaching Linen, Hempen-cloth, and Stuffs with Horse-chestnuts.]()
+
 ---
 
 To the Laudable Society for the Improvement of Arts, Manufactures, and Commerce, this Treatise on Hemp, as both curious and useful, is with the greatest Respect inscribed by their most humble Servant, The Editor.
