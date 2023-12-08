@@ -12,11 +12,11 @@
 
 ---
 
-# [Part 1. Containing its History, with the Preparations and Uses made of it by the Ancients.]()
+# [Part 1. Containing its History, with the Preparations and Uses made of it by the Ancients.](#part-1-containing-its-history-with-the-preparations-and-uses-made-of-it-by-the-ancients-1)
 
-# [Part 2. Of the Methods of cultivating, dressing, and manufacturing it, as improved by the Experience of modern Times.]()
+# [Part 2. Of the Methods of cultivating, dressing, and manufacturing it, as improved by the Experience of modern Times.](#part-2-of-the-methods-of-cultivating-dressing-and-manufacturing-it-as-improved-by-the-experience-of-modern-times-1)
 
-# [The Method of Bleaching Linen, Hempen-cloth, and Stuffs with Horse-chestnuts.]()
+# [The Method of Bleaching Linen, Hempen-cloth, and Stuffs with Horse-chestnuts.](#the-method-of-bleaching-linen-hempen-cloth-and-stuffs-with-horse-chestnuts-1)
 
 ---
 
