@@ -3,4 +3,4 @@
 [French - Plain Text](full-text-french.md)  
 French - PDF | Biolinum | Kerkis | Atkinson | Cursive | Aurical | Custom  
 [English - Plain Text](full-text-english.md)  
-English - PDF | Biolinum | Kerkis | Atkinson | Cursive | Aurical | Custom  
+[English - PDF](https://cdn.solaranamnesis.com/Marcandier/marcandier_1764_hemp_english.pdf) | [Biolinum](https://cdn.solaranamnesis.com/Marcandier/marcandier_1764_hemp_english_biolinum.pdf) | [Kerkis](https://cdn.solaranamnesis.com/Marcandier/marcandier_1764_hemp_english_kerkis.pdf) | [Atkinson](https://cdn.solaranamnesis.com/Marcandier/marcandier_1764_hemp_english_atkinson.pdf) | [Coelacanth](https://cdn.solaranamnesis.com/Marcandier/marcandier_1764_hemp_english_coelacanth.pdf) | [Aurical](https://cdn.solaranamnesis.com/Marcandier/marcandier_1764_hemp_english_aurical.pdf) | [Custom](https://cdn.solaranamnesis.com/Marcandier/marcandier_1764_hemp_english_custom.pdf)  
