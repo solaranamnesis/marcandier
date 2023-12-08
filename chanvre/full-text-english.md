@@ -30,7 +30,7 @@ Though this little work was intended solely for the instruction of manufacturers
 
 *) Bourges, the capital of Berry, (a province celebrated for its Hemp) was one of the cities of Gaul mentioned by Pliny, where, in his time, so great a quantity of linen and Hempen cloth was made, that he even seems to reproach them with... _Ita ne et Galliæ censentur hoc reditu? Montesque mari oppositos esse non est satis, et à latere Oceani obstare ipsum quod vocant inane Cadurci, Caleti, Ruteni, Bituriges, ultimique hominum existum uti morini, immo vero Galliæ universæ vela texunt._ Plin. l. 19. c. 1.
 
-*) There is none that offers so great advantage to man; it even brings in more than corn. _Nouv. Mais. Rust. tom. 1. p. 680.
+*) There is none that offers so great advantage to man; it even brings in more than corn. _Nouv. Mais. Rust. tom. 1. p. 680._
 
 We shall give several extracts from different Authors, who have left us any notices of this plant, and its uses, either in Physick, or the Arts; we shall also give particular observations relating to economy, which is the principal design of this work, and add some remarks upon the bad practices, the frauds, the negligences, and abuses, that have creeped into this branch of commerce. In a word, we shall do everything in our power to attain the end of this work: What further remains must be expected from the government, and from the public.
 
